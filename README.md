@@ -1,3 +1,7 @@
-Kto chce szuka sposobu kto nie chce szuka powodu ;)
 
-dziwki ;D 
+aVe
+
+┌∩┐(◣_◢)┌∩┐
+
+kto chce szuka sposobu
+kto nie chce ... powodu
